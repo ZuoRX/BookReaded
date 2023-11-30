@@ -20,3 +20,7 @@
 ![image](https://github.com/ZuoRX/BookReaded/assets/39646789/28c0d124-c048-414d-a56f-5af7e4726124)
 
 ![image](https://github.com/ZuoRX/BookReaded/assets/39646789/d547ae24-1d10-42f2-bb6b-626602fbc025)
+
+![image](https://github.com/ZuoRX/BookReaded/assets/39646789/2e1c115f-ccf1-4c88-9191-7bf83738b04f)
+
+![image](https://github.com/ZuoRX/BookReaded/assets/39646789/c74a84f8-7773-4584-8fed-3ac93034934a)
