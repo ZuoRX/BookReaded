@@ -24,3 +24,10 @@
 ![image](https://github.com/ZuoRX/BookReaded/assets/39646789/2e1c115f-ccf1-4c88-9191-7bf83738b04f)
 
 ![image](https://github.com/ZuoRX/BookReaded/assets/39646789/c74a84f8-7773-4584-8fed-3ac93034934a)
+
+![image](https://github.com/ZuoRX/BookReaded/assets/39646789/28578e22-37d3-4195-afff-60949e3dbe26)
+
+![image](https://github.com/ZuoRX/BookReaded/assets/39646789/551b4a36-547c-45d2-971c-9e57f8a192a8)
+
+![image](https://github.com/ZuoRX/BookReaded/assets/39646789/b4acc0e1-cfa3-453a-91b6-ef36595583c3)
+
