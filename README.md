@@ -34,3 +34,6 @@
 ![image](https://github.com/ZuoRX/BookReaded/assets/39646789/d7eb2f12-8264-4ffc-93a7-d3a3053d92fb)
 
 ![image](https://github.com/ZuoRX/BookReaded/assets/39646789/e0ba19ed-cd8f-4c2a-a18a-77978c6ae8fd)
+
+![image](https://github.com/ZuoRX/BookReaded/assets/39646789/e385a24f-68a6-46a6-93fc-7bc1fe3c1de9)
+
